@@ -13,4 +13,11 @@ shfitf
  tothe taba
   ke3y 
   moving
+  moex
+  dougouuuug
+
+
+
+  /2 monts
+  /run a gmea
   
