@@ -15,7 +15,7 @@ shfitf
   moving
   moex
   dougouuuug
-
+    gv vg. gf. gv tv. gcgr.  rvd ddvrv d. frc ddd rvrvd dtbfbd tnf fbyrb.f f t d f t f gnr f  f tnc f f d t ffv f ff ff d  f  f d vt f 
 
 
   /2 monts
